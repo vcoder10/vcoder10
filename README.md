@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **vikramaditya.singh.cse23@heritageit.edu.in**
 
-- 📄 Know about my experiences [resume is in process ...](resume is in process ...)
+
 
 - ⚡ Fun fact **Nothing**
 
